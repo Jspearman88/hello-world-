@@ -1,2 +1,4 @@
 # hello-world-
 This is the beginning. Lets not give up, okay?
+
+Im really tired. Im a bit confused in class and im having trouble ACTUALLY creating  program. I feel that even though ive learned alot already im still struggling to put it together. I was useless to my team and basically contributed nothing. And even now i feel as if im already behind the class. But even so, i havent said a word to my professor. Because im not even sure what the problem is, but seeing as im having trouble even now i know i should and will speak with my professor about this troubling issue. But i wont drop because i actually enjoy this class and programming is really fun! its just stressful not being able to complete or start something you already should know some things about. But i wont give up and quite, because programming is something that ive realized i actually enjoy doing and might even start a second major with. So until then, im going to keep going. 
